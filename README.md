@@ -1,2 +1,1 @@
-Hi,
-i´m STEM Student
+Just goofing around u know
